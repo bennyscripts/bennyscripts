@@ -1,3 +1,1 @@
-okay, i guess you found my github,  
-my names Ben and i used to code and heres all my projects  
-> please don't ask for support
+![image](https://github.com/user-attachments/assets/65fae5a3-42b9-4395-ac1f-3b76da911393)
